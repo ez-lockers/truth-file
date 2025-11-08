@@ -2,7 +2,7 @@
 - **Company:** EZ Lockers
   -incorp and the banck account in Chase opened
   -Contract and privacy terms not complete   
-- **Location:** 901 Mopac Expressway South, Building 1, Suit 300, Austin, Texas 78746  
+- **Location:** 901 Mopac Expressway South, Building 1, Suit 300, Austin, Texas 78746  Phone: 512 796 4472 and email: info@ez-lockers.com
 - **Business Type:** Smart locker for storage management in multi-family housing
   -need to critical thinking: sell plastic material cabinets to gym and shcoolds also?
 
